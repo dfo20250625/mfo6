@@ -39,7 +39,7 @@
 
 点击访问：<a href="https://heiliao954.pages.dev/">黑料专区</a>
 
-点击访问：<a href="https://heiliao383.pages.dev/">https://heiliao383.pages.dev/</a>
+点击访问：<a href="https://heiliao383.pages.dev/">今日黑料独家爆料/</a>
 
 点击访问：<a href="https://heiliao159.pages.dev/">独家爆料正能量</a>
 
